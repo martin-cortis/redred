@@ -4,7 +4,7 @@
 <img align="left" width="250" height="350" src="https://file.garden/ahDTcBtNXw2HO0ux/Screenshot%202026-05-27%208.11.33%20AM.png">
 
 </br>⠀⠀⠀[☆](https://open.spotify.com/track/0NdTUS4UiNYCNn5FgVqKQY?si=18ac9fc889d54779)⠀⠀⠀`I` $\color{#b57f61}{love}$ `my` $\color{#664d4a}{boyfriend}$ `<3`
-</br> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Strawpage](https://mrtined.straw.page)
+</br> ⠀⠀⠀⠀[Strawpage](https://mrtined.straw.page)⠀⠀⠀⠀[Prns](https://pronouns.cc/@martinn)⠀⠀⠀⠀[FM](https://www.last.fm/user/mart1n__)
 
 
 
